@@ -1,1 +1,0 @@
-# linq22.github.io
